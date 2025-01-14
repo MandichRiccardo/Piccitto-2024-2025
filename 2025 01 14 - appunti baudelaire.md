@@ -7,3 +7,5 @@
 - le sue poesie non sono opere che vengono completate ma subiscono continue modifiche fino alla perfezione formale (ossia del testo e della lingua)
 - ha un'enorme padronanza della matrica e della ritmica che rinnova profondamente sempre cercando la perfezione formale
 - molte poesie usano sia termini aulici  che termini scurrili (ossia di uso comune)
+- i contenuti inseriti nelle sue opere stridono rispetto alla forma delle stesse
+    - e.g.: versi aulici e solenni che parlano di argomenti comuni e non eventi importanti
