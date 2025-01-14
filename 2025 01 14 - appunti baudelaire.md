@@ -9,3 +9,4 @@
 - molte poesie usano sia termini aulici  che termini scurrili (ossia di uso comune)
 - i contenuti inseriti nelle sue opere stridono rispetto alla forma delle stesse
     - e.g.: versi aulici e solenni che parlano di argomenti comuni e non eventi importanti
+- tutta gli ambienti della sua vita diventano ispirazione e contenuti delle sue opere
