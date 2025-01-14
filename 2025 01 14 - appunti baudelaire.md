@@ -6,4 +6,4 @@
     non esiste una data unica e precisa per la nascita della creazione della poesia moderna.
 - le sue poesie non sono opere che vengono completate ma subiscono continue modifiche fino alla perfezione formale (ossia del testo e della lingua)
 - ha un'enorme padronanza della matrica e della ritmica che rinnova profondamente sempre cercando la perfezione formale
-- molte poesie usano sia termini aulici  che termini scurrili e di uso comune
+- molte poesie usano sia termini aulici  che termini scurrili (ossia di uso comune)
