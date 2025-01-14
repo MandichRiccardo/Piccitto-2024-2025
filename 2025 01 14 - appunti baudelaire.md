@@ -11,4 +11,4 @@
     - e.g.: versi aulici e solenni che parlano di argomenti comuni e non eventi importanti
 - tutta gli ambienti della sua vita diventano ispirazione e contenuti delle sue opere
 - i genitori (un generale e una donna borghese) lo mandano in viaggio in oriente per cercare di fermare questo suo "andazzo" però lui scende prima dal treno e torna a parigi e lì sperpera tutto il suo patrimonio
-- 
+- muore nell'agosto 1867 a 46 anni
