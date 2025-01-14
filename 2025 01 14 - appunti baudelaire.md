@@ -14,3 +14,7 @@
 - muore nell'agosto 1867 a 46 anni
 - con lui si vede quella che è la figura dell'intellettuale moderno nella società in maniera molto maggiore rispetto a ugo foscolo e possiamo trovare un livello completamente diverso di critica non costruttiva nei suoi confronti
 - ci troviamo in una società che con gli anni continua a mietere nuove vite a livello sociale
+- svolge la sua vita in una dimensione che oscilla tra
+    - `IDÈAL`, ossia il momento di massima felicità, di gioia assoluta
+    - `SPLEEN`, ossia il momento di massimo sconforto e infelicità, senza via d'uscita, di disperazione assoluta   
+- in tutto ciò manca l'equilibro della società borghese, quesa è una feroce critica per gli intellettuali stessi, in quanto non lascia spazio ne vita agli intellettuali tranne a quelle definiti `intellettuali di regime` ossia quelli intellettuali che 
