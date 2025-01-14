@@ -21,3 +21,4 @@
 - tra i generi letterari la poesia è sempre stata la più conservatrice ed esclusiva, restando legata alle corti e ai nobili
 - charles fa molto uso di simbolismi (ossia personaggi o oggetti che hanno un significato, ideale o sociale. definizione alternativa: oggetto concreto con significato astratto)
 - il problema relativo ai simboli delle poesie moderne è la semplicità nella compresione dei simboli, nei tempi passiti era molto più semplice comprendere i simboli in quanto erano più semplici e esistevano dei libri che erano dei veri e propri manuali comuni a tutti che spiegavano il significato del simbolismo usato
+- tornando alla raccolta precedentemente nominata (`i fiori del male`) troviamo il fiore che per Charles trasmette un significato positivo per la pellezza e perfezione simmetrica e un significato negativo in quanto legato alla terra che porta negatività, i fiori la negano in quanto cercano di alzarsi e allontanarsi
