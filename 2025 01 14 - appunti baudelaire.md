@@ -17,4 +17,4 @@
 - svolge la sua vita in una dimensione che oscilla tra
     - `IDÈAL`, ossia il momento di massima felicità, di gioia assoluta
     - `SPLEEN`, ossia il momento di massimo sconforto e infelicità, senza via d'uscita, di disperazione assoluta   
-- in tutto ciò manca l'equilibro della società borghese, quesa è una feroce critica per gli intellettuali stessi, in quanto non lascia spazio ne vita agli intellettuali tranne a quelle definiti `intellettuali di regime` ossia quelli intellettuali che 
+- in tutto ciò manca l'equilibro della società borghese, quesa è una feroce critica per gli intellettuali stessi, in quanto non lascia spazio ne vita agli intellettuali tranne a quelle definiti `intellettuali di regime` ossia quelli intellettuali che sono legati al governo da un doppio filo
