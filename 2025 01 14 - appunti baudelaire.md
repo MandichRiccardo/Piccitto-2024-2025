@@ -13,3 +13,4 @@
 - i genitori (un generale e una donna borghese) lo mandano in viaggio in oriente per cercare di fermare questo suo "andazzo" però lui scende prima dal treno e torna a parigi e lì sperpera tutto il suo patrimonio
 - muore nell'agosto 1867 a 46 anni
 - con lui si vede quella che è la figura dell'intellettuale moderno nella società in maniera molto maggiore rispetto a ugo foscolo e possiamo trovare un livello completamente diverso di critica non costruttiva nei suoi confronti
+- ci troviamo in una società che con gli anni continua a mietere nuove vite a livello sociale
