@@ -17,7 +17,7 @@
 - svolge la sua vita in una dimensione che oscilla tra
     - `IDÈAL`, ossia il momento di massima felicità, di gioia assoluta
     - `SPLEEN`, ossia il momento di massimo sconforto e infelicità, senza via d'uscita, di disperazione assoluta   
-- in tutto ciò manca l'equilibro della società borghese, quesa è una feroce critica per gli intellettuali stessi, in quanto non lascia spazio ne vita agli intellettuali tranne a quelle definiti **intellettuali di regime** ossia quelli intellettuali che sono legati al governo da un doppio filo
+- in tutto ciò manca l'equilibro della società borghese, quesa è una feroce critica per gli intellettuali stessi, in quanto non lascia spazio ne vita agli intellettuali tranne a quelle definiti **`intellettuali di regime`** ossia quelli intellettuali che sono legati al governo da un doppio filo
 - tra i generi letterari la poesia è sempre stata la più conservatrice ed esclusiva, restando legata alle corti e ai nobili
 - charles fa molto uso di simbolismi (ossia personaggi o oggetti che hanno un significato, ideale o sociale. definizione alternativa: oggetto concreto con significato astratto)
 - il problema relativo ai simboli delle poesie moderne è la semplicità nella compresione dei simboli, nei tempi passiti era molto più semplice comprendere i simboli in quanto erano più semplici e esistevano dei libri che erano dei veri e propri manuali comuni a tutti che spiegavano il significato del simbolismo usato
