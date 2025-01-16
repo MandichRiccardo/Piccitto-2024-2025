@@ -36,3 +36,4 @@ vasta come la notte ed il chiarore.`**
     - dei profumi che si espandono e corrompono l'aria sovrastando gli altri, profumi naturali molto intensi e persistenti.
     - questi profumi portano un rapimento dei sensi e dell'anima
     - tutte queste cose generalmente non vengono colte ma succede solo con poche persone che pongono attenzione e sanno cogliere le corrispondenze e i particolari profumi e segnali che la natura manda. queste persone sono i poeti e gli artisti in generale.
+        - anche baudolaire ha avuto una minima esperienza di politica ma ha deciso di tirarsene fuori e ignorarla perchè non hanno un messaggio da dare e non sono la voce di nessuno, anzi, sono incapaci di vivere il mondo sociale e si emarginano da esso
