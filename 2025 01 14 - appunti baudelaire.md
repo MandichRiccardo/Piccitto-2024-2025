@@ -24,3 +24,13 @@
 - tornando alla raccolta precedentemente nominata (`i fiori del male`) troviamo il fiore che per Charles trasmette un significato positivo per la pellezza e perfezione simmetrica e un significato negativo in quanto legato alla terra che porta negatività, i fiori la negano in quanto cercano di alzarsi e allontanarsi
 ## corrispondenze
 - questo testo è importante perchè è un testo molto rappresentativo e emblematico di quello che la poesia moderna vuole essere secondo baudelaire
+- **`I profumi e i colori  
+e i suoni si rispondono come echi  
+lunghi che di lontano si confondono    
+in unità profonda e tenebrosa,  
+vasta come la notte ed il chiarore.`**
+    - un qualcosa di contraddittorio che però ha un loro senso, una sua unità
+- **`Esistono profumi freschi come carni di bimbo, dolci come gli òboi, e verdi come praterie;`**
+    - profumo di nuovo e di fresco, si va a creare una *sinestesia* tra vista e odore
+- **`e degli altri corrotti, ricchi e trionfanti, che hanno l'espansione propria alle infinite cose, come l'incenso, l'ambra, il muschio, il benzoino, e cantano dei sensi e dell'anima i lunghi rapimenti.`**
+    - dei profumi che si espandono e corrompono l'aria sovrastando gli altri, profumi naturali molto intensi e persistenti.
