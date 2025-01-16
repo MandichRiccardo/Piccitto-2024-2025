@@ -35,4 +35,4 @@ vasta come la notte ed il chiarore.`**
 - **`e degli altri corrotti, ricchi e trionfanti, che hanno l'espansione propria alle infinite cose, come l'incenso, l'ambra, il muschio, il benzoino, e cantano dei sensi e dell'anima i lunghi rapimenti.`**
     - dei profumi che si espandono e corrompono l'aria sovrastando gli altri, profumi naturali molto intensi e persistenti.
     - questi profumi portano un rapimento dei sensi e dell'anima
-    - tutte queste cose generalmente non vengono colte ma succede solo con poche persone che pongono attenzione e sanno cogliere le corrispondenze e i particolari profumi e segnali che la natura manda. queste persone sono i poeti.
+    - tutte queste cose generalmente non vengono colte ma succede solo con poche persone che pongono attenzione e sanno cogliere le corrispondenze e i particolari profumi e segnali che la natura manda. queste persone sono i poeti e gli artisti in generale.
