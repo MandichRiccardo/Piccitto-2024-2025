@@ -39,3 +39,13 @@ vasta come la notte ed il chiarore.`**
         - anche baudolaire ha avuto una minima esperienza di politica ma ha deciso di tirarsene fuori e ignorarla perchè non hanno un messaggio da dare e non sono la voce di nessuno, anzi, sono incapaci di vivere il mondo sociale e si emarginano da esso.
         - quello che lui e i pochi come lui possono fare è tentare una rivalutazione della natura come alternativa alla società.
         - questi discorsi e concetti verranno poi ripresi in mano da `D'Annunzio` che si ritrovarà come artista al di fuori del mondo anche se lui si orienta più all'`Ideal` e all'`Edonismo` (ossia identificare il bene morale col piacere, riconoscendo in esso il fine ultimo dell'essere umano)
+## il Vampiro
+- a livello metrico è la perfezione formale
+- si parla di un'amore che non è amore
+- ci sono varie forme di amore in una relazione e nella realtà non esiste l'amore ideale e qui ci troviamo in un'amore aggressivo e sadomaso (ossia si gode del dolore)
+- vediamo come la relazione viene comparata ad oggetti e animali disdicevoli e non paragonati abitualmente a standard di bellezza
+prima di questo momento (rinascimento e dal '300 in poi) la donna veniva lodata e idealizzata, qui si arriva all'opposto con una passione distruttiva
+- **`Ahimè, la spada ed il veleno, pieni di disprezzo, m’han detto: ‘Non sei degno che alla tua schiavitù maledetta ti si tolga, imbecille!`**
+    - non meriti neanche la morte
+- **`Tu che t’insinuasti come una lama nel mio cuore gemente`**
+    - tu che hai danneggiato ulteriormente il mio cuore già ferito e dolorante

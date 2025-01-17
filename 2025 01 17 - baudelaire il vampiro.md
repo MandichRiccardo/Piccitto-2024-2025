@@ -1,4 +1,4 @@
-# LE VAMPIRE, Les Fleurs du Mal
+# FRANCESE
 
 
 Toi qui, comme un coup de couteau,    
@@ -32,8 +32,7 @@ Tes baiser ressusciteraient
 Le cadavre de ton vampire!’    
  
 
-# TRADUZIONE IN ITALIANO
-# IL VAMPIRO, I Fiori del Male
+# ITALIANO
 
  
 Tu che t’insinuasti come una lama    
