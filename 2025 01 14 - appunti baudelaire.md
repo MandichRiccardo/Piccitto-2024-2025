@@ -45,7 +45,15 @@ vasta come la notte ed il chiarore.`**
 - ci sono varie forme di amore in una relazione e nella realtà non esiste l'amore ideale e qui ci troviamo in un'amore aggressivo e sadomaso (ossia si gode del dolore)
 - vediamo come la relazione viene comparata ad oggetti e animali disdicevoli e non paragonati abitualmente a standard di bellezza
 prima di questo momento (rinascimento e dal '300 in poi) la donna veniva lodata e idealizzata, qui si arriva all'opposto con una passione distruttiva
+- si può osservare come lui a seguito della morte del padre, il matrimonio della madre con un'uomo più vecchio di lei e del suo complesso edipico (attrazione verso il genitore del sesso opposto e rivalità con quello dello stesso sesso) vada a collegare sempre le relazioni amorose con il tradimento.  
+tradisce lui prima di poter venir tradito
 - **`Ahimè, la spada ed il veleno, pieni di disprezzo, m’han detto: ‘Non sei degno che alla tua schiavitù maledetta ti si tolga, imbecille!`**
     - non meriti neanche la morte
 - **`Tu che t’insinuasti come una lama nel mio cuore gemente`**
     - tu che hai danneggiato ulteriormente il mio cuore già ferito e dolorante
+- testo somigliante a *`Spleen`* per quanto riguarda il degrado, la putrefazione, il marcire in contrapposizione con la tematica dell'irrealismo contrapposto di perfezione e bellezza femminile, si trova anche l'idea della tristezza e della prigionia costante e opprimente
+    - l'idea dell'inganno, del veleno perfido, che inganna e condanna
+    - la *ludopatia* del giocatore che però non riesce a sganciarsi neanche con la tristezza che gli viene causata
+    - è così pieno di tristezza che non può liberarsene neanche nella morte
+    - una relazione degradante che però va conservata in quanto unica e insostituibile
+    - il vampiro simboleggiante un parassita immortale, sempre a opprimerlo
