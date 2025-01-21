@@ -8,4 +8,5 @@
 - gli `stati stelliti` sono quegli stati affiliati alla russia e fanno parte del patto di varsavia.
 - la repubblica federale tedesca `BRD` appartiene al `blocco occidentale` mentre la repubblica democratica tedesca `DDR` (che non era democratica) fa parte del `blocco russo`
 - siamo negli anni '80 e tutti gli sforzi americani vanno agli armamenti aggravando sempre di più la situazione degli stati satelliti in quanto la madrepatria russia deve investire in armi e non le può finanziare
-- nel `1982` kresniev muore e viene susseguito da `Andropov` che mantiene il potere per un paio di anni e poi muore, durante il suo governo cerca, fallendo, di ridurre le spese militare
+- nel `1982` kresniev muore e viene susseguito da `Andropov` che mantiene il potere per un paio di anni e poi muore, durante il suo governo cerca, fallendo, di creare delle aperture.
+- nel `1984` sale al potere `Černenko` che cerca di ridurre le spese militari.
