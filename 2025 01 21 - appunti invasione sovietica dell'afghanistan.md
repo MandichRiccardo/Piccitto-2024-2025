@@ -24,3 +24,6 @@
 - boris yelsin spingerà verso un'uscita completa e l'attuazione delle riforme di gorbachov
 - `Glasnost'` (in russo гла́сность? , ['gɫɑsnəsʲtʲ]) è una parola russa che significa letteralmente "pubblicità" nel senso di "dominio pubblico"; tradotta più spesso con "trasparenza".
 - `Perestrojka` (in russo перестройка?, [pʲɪrʲɪˈstrojkə], lett. ricostruzione, ricostituzione o ristrutturazione) indica un complesso di riforme politico-sociali ed economiche avviate dalla dirigenza dell'Unione Sovietica a metà degli anni ottanta, finalizzate alla riorganizzazione dell'economia e della struttura politica e sociale del Paese.
+- c'è un passaggio da un piano quinquiennale all'economia di mercato
+- questa rivoluzione oltre che economica è culturale in quanto il popolo non è abituato a tutto ciò e gira le spalle a gorbachov in quanto pensa che le cose siano peggiorate.
+- nonostante ciò gorbachov a fine mandato indice altre elezioni in quanto pensa di vincere e che comunque ne avrebbe rispettato il sacro risultato.
