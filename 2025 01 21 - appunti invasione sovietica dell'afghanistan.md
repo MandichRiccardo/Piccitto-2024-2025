@@ -27,3 +27,8 @@
 - c'è un passaggio da un piano quinquiennale all'economia di mercato
 - questa rivoluzione oltre che economica è culturale in quanto il popolo non è abituato a tutto ciò e gira le spalle a gorbachov in quanto pensa che le cose siano peggiorate.
 - nonostante ciò gorbachov a fine mandato indice altre elezioni in quanto pensa di vincere e che comunque ne avrebbe rispettato il sacro risultato.
+- nonostante ciò le elezioni vengono vinte da `Boris Yeltsin` che darà il via alla privatizzazione delle aziende statali dando vita a gazprom.
+- Gorbachov si trova con Reagan a Ginevra, un incontro seguito da tutto il mondo
+- l'idea di un socialismo democratico non è mai decollata propro per l'opposizione interna della nomenclatura e perchè la popolazione non capisce cosa sta succedendo e pensa che l'unico modo per risolvere il problema economico russo sia quello di accelerare anche se poi porterà solo a peggiorare la situazione popolare
+## la polonia
+- la figura che ha mosso di più le acque in questo contesto è `papa Giovanni Paolo II` che si è trovato in una situazione della polonia molto conflittuale in quanto c'era uno sciopero degli operai portuali di danzica che chiedevano un trattamento migliore seguito da un colpo di stato militare.
