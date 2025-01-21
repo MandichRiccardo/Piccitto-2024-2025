@@ -17,3 +17,10 @@
 - la prima cosa che fa è eliminare il nocciolo duro in quanto erano ormai dei conservatori del totalitarismo.
 - mikhail infatti riceve inoltre il premio Nobel per la pace
 - grazie a lui è potuta esserci una transizione tra comunismo e un sistema democratico
+- crede di poter riformare un sistema non più riformabile per colpa delle seguenti cose:
+    - la lotta interna al partito
+    - l'impossibilità ad entrare nel mercato globale
+- `transizione`: in economia politica è considerato il passaggio tra un sistema socioeconomico ad un'altro
+- boris yelsin spingerà verso un'uscita completa e l'attuazione delle riforme di gorbachov
+- `Glasnost'` (in russo гла́сность? , ['gɫɑsnəsʲtʲ]) è una parola russa che significa letteralmente "pubblicità" nel senso di "dominio pubblico"; tradotta più spesso con "trasparenza".
+- `Perestrojka` (in russo перестройка?, [pʲɪrʲɪˈstrojkə], lett. ricostruzione, ricostituzione o ristrutturazione) indica un complesso di riforme politico-sociali ed economiche avviate dalla dirigenza dell'Unione Sovietica a metà degli anni ottanta, finalizzate alla riorganizzazione dell'economia e della struttura politica e sociale del Paese.
