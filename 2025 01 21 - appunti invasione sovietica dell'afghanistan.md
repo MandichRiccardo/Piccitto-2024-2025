@@ -12,3 +12,8 @@
 - nel `1984` sale al potere `Černenko` che cerca di ridurre le spese militari.
 - un anno dopo lui muore e prende il potere gorbachov
 - gorbachov è un leader nuovo che capisce che il partito è in stallo impossibilitato a ristabilirsi da solo e ha bisogno dell'aiuto del popolo.
+- è un'utopista anche se `pragmatico` (una persona pragmatica è spesso considerata realista e interessata alla soluzione dei problemi concreti.) in quanto lui vuole portare avanti grosse riforme (come la libertà di pensione e contro la repressione di regime) ma vuole mantenere il sistema socioeconomico precedente in quanto era un riformista e non un rivoluzionario.
+- ricapitolando vuole rimuovere gli aspetti totalitari e ripistinare gli aspetti democratici
+- la prima cosa che fa è eliminare il nocciolo duro in quanto erano ormai dei conservatori del totalitarismo.
+- mikhail infatti riceve inoltre il premio Nobel per la pace
+- grazie a lui è potuta esserci una transizione tra comunismo e un sistema democratico
