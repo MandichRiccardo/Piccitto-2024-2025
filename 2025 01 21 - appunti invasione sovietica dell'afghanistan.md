@@ -1,0 +1,6 @@
+- negli ultimi anni dell'impero sovietico la lotta interna è tra nomenclatura e quelli che vogliono fare qualcosa
+- la ***DACIA*** è la casa
+- l'afghanistan (territorio indipendente) viene attaccato dai sovietici e gli americani li addestrano per fare opposizione ai sovietici
+- da notare che i ***`Mujaheddin`*** non erano filoamericani ma usavano gli americani per potersi opporre ai sovietici
+- sono tre anni che kresniev è a guida dei sovietici e sta già chiudendo le piccole aperture aperte da Khrushchev
+- negli ultimi anni c'è uno scontro fortissimo tra il nocciolo duro (più legato alla nomenclatura e gli alti funzionari che non vogliono abbandonare i privilegi e le libertà) e l'ala giovane che porta la crisi interna al cus a diventare sempre più grande e esagerata, con il continuo investimento in metalli pesanti e armi a discapito di beni di consumo e agricoltura
