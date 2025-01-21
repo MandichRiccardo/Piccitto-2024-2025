@@ -4,3 +4,8 @@
 - da notare che i ***`Mujaheddin`*** non erano filoamericani ma usavano gli americani per potersi opporre ai sovietici
 - sono tre anni che kresniev è a guida dei sovietici e sta già chiudendo le piccole aperture aperte da Khrushchev
 - negli ultimi anni c'è uno scontro fortissimo tra il nocciolo duro (più legato alla nomenclatura e gli alti funzionari che non vogliono abbandonare i privilegi e le libertà) e l'ala giovane che porta la crisi interna al cus a diventare sempre più grande e esagerata, con il continuo investimento in metalli pesanti e armi a discapito di beni di consumo e agricoltura
+- questa guerra si può definire il `vietnam russo` ossia una guerra portata da una grande potenza a danni di una popolazione ridotta che riesce a sfruttare la conformazione del territorio locale per riuscira a contrastare grandi numeri con pochi uomini
+- gli `stati stelliti` sono quegli stati affiliati alla russia e fanno parte del patto di varsavia.
+- la repubblica federale tedesca `BRD` appartiene al `blocco occidentale` mentre la repubblica democratica tedesca `DDR` (che non era democratica) fa parte del `blocco russo`
+- siamo negli anni '80 e tutti gli sforzi americani vanno agli armamenti aggravando sempre di più la situazione degli stati satelliti in quanto la madrepatria russia deve investire in armi e non le può finanziare
+- nel `1982` kresniev muore e viene susseguito da `Andropov` che mantiene il potere per un paio di anni e poi muore, durante il suo governo cerca, fallendo, di ridurre le spese militare
