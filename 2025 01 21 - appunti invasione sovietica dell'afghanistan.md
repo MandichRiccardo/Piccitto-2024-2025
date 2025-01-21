@@ -10,3 +10,5 @@
 - siamo negli anni '80 e tutti gli sforzi americani vanno agli armamenti aggravando sempre di più la situazione degli stati satelliti in quanto la madrepatria russia deve investire in armi e non le può finanziare
 - nel `1982` kresniev muore e viene susseguito da `Andropov` che mantiene il potere per un paio di anni e poi muore, durante il suo governo cerca, fallendo, di creare delle aperture.
 - nel `1984` sale al potere `Černenko` che cerca di ridurre le spese militari.
+- un anno dopo lui muore e prende il potere gorbachov
+- gorbachov è un leader nuovo che capisce che il partito è in stallo impossibilitato a ristabilirsi da solo e ha bisogno dell'aiuto del popolo.
