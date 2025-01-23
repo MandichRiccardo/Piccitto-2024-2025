@@ -1,5 +1,5 @@
 # GIOVANNI PASCOLI
-- nasce a forlì nel 1912
+- nasce a San Mauro di Romagna nel 1855 e muore a Bologna nel 1912
 - ha due sorelle: Maria e Ida
 - suo padre morì quando lui aveva solo 12 anni
 - lui studia a bologna e il suo mentore è `Giosuè Carducci`
