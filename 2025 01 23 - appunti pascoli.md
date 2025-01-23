@@ -1,5 +1,6 @@
 # GIOVANNI PASCOLI
 - nasce a forlì nel 1912
+- ha due sorelle: Maria e Ida
 - suo padre morì quando lui aveva solo 12 anni
 - lui studia a bologna e il suo mentore è `Giosuè Carducci`
 - viene tirato fuori di prigione da carducci dopo una manifestazione socialista
