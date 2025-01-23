@@ -8,4 +8,6 @@
     - si tratta di quel periodo della propria vita in cui tutto è **nuovo** e **meraviglioso**
     - pascolo rappresenta l'`io poetico` con la persistena (soppravvivenza) del suo `io infantile`
         - questo significa dire che in ognuno di noi c'è un'`io infantile` che normalmente viene sopito e nascosto ma nel poeta questo io si rivela e gli consente di avere una visione diversa del mondo
+        - si ritiene che il fanciullo sia una tabula rasa, che sia predisposto a imparare le lingue e la scrittura.
+        - soprattutto il fanciullo ha un modo che rispetto a noi è estremamente irrazionale e dissimile.
 - lui guadagna molti soldi con le medaglie di amsterdam e compra una casa `castelvecchio di Barga`
