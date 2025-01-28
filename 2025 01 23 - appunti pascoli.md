@@ -32,3 +32,4 @@ nella stessa strofa si parla del perdono del padre e di come stava portando due 
 # Lavandare
 - nel campo da arare (la terra già arata è marrone, quella grigia/nera è quella che si trova in superficie durante l'inverno) mentre l'aratro senza buoi è inutile e non può dare una direzione di vita e della nebbia mattutina tipoca dalla campagna
 - nella seconda strofa si parla del ritmo al cui le lavandaie lavano i panni, un ritmo dato dallo scorrere del canale che porta l'acqua dal mulino (questo canale si chiama gora)
+- la terza strofa riporta le parole della cantilena eseguita dalle lavandaie. parla di una storia di abbandono, di un uomo che non torna e che abbandona la ragazza (la lavandaia che canta).
