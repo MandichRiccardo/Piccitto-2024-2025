@@ -5,7 +5,7 @@ arde e cade, perché si gran pianto
 nel concavo cielo sfavilla.    
 
 Ritornava una rondine al tetto:     
-l'uccisero: cadde tra i spini;    
+l'uccisero: cadde tra spini;    
 ella aveva nel becco un insetto:    
 la cena dei suoi rondinini.    
 

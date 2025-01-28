@@ -25,3 +25,6 @@
 - il testo inizia con `San Lorenzo` serve a localizzare cronologicamente il testo
 - nella prima strofa si racconta delle `stelle cadenti` evento noto per avvenire in questa notte
 - nella seconda strofa si parla di una rondine uccisa mentre portava a casa la cena per i figli che si trovava sotto al tetto
+- nella terza strofa troviamo i risultati di questa morte, il cadavere che ricorda una croce, il cielo (sua via di fuga) che si allontana e i piccoli che muoiono di fame e i loro versi che calano di volume e pigolano più piano
+- nella quarta strofa si passa dalla morte della rondine a quella del padre, morto anche lui la notte del 10 agosto.
+nella stessa strofa si parla del perdono del padre e di come stava portando due bambole in dono alle figlie
