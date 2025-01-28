@@ -1,3 +1,4 @@
+# lavandare
 Nel campo mezzo grigio e mezzo nero    
 resta un aratro senza buoi che pare    
 dimenticato, tra il vapor leggiero.    
