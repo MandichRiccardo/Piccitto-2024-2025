@@ -1,32 +1,33 @@
 # testo
-San Lorenzo, io lo so perché tanto
-di stelle per l'aria tranquilla
-arde e cade, perché si gran pianto
-nel concavo cielo sfavilla.
-Ritornava una rondine al tetto:
-l'uccisero: cadde tra i spini;
-ella aveva nel becco un insetto:
-la cena dei suoi rondinini.
+San Lorenzo, io lo so perché tanto    
+di stelle per l'aria tranquilla    
+arde e cade, perché si gran pianto    
+nel concavo cielo sfavilla.    
 
-Ora è là, come in croce, che tende
-quel verme a quel cielo lontano;
-e il suo nido è nell'ombra, che attende,
-che pigola sempre più piano.
+Ritornava una rondine al tetto:     
+l'uccisero: cadde tra i spini;    
+ella aveva nel becco un insetto:    
+la cena dei suoi rondinini.    
 
-Anche un uomo tornava al suo nido:
-l'uccisero: disse: Perdono;
-e restò negli aperti occhi un grido:
-portava due bambole in dono.
+Ora è là, come in croce, che tende    
+quel verme a quel cielo lontano;    
+e il suo nido è nell'ombra, che attende,    
+che pigola sempre più piano.    
 
-Ora là, nella casa romita,
-lo aspettano, aspettano in vano:
-egli immobile, attonito, addita
-le bambole al cielo lontano.
+Anche un uomo tornava al suo nido:    
+l'uccisero: disse: Perdono;    
+e restò negli aperti occhi un grido:    
+portava due bambole in dono.    
 
-E tu, Cielo, dall'alto dei mondi
-sereni, infinito, immortale,
-oh! d'un pianto di stelle lo inondi
-quest'atomo opaco del Male!
+Ora là, nella casa romita,    
+lo aspettano, aspettano in vano:    
+egli immobile, attonito, addita    
+le bambole al cielo lontano.    
+
+E tu, Cielo, dall'alto dei mondi    
+sereni, infinito, immortale,    
+oh! d'un pianto di stelle lo inondi    
+quest'atomo opaco del Male!    
 
 # parafrasi
 San Lorenzo, io sono a conoscenza del perché
