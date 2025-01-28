@@ -12,3 +12,11 @@
         - si ritiene che il fanciullo sia una tabula rasa, che sia predisposto a imparare le lingue e la scrittura.
         - soprattutto il fanciullo ha un modo che rispetto a noi è estremamente irrazionale e dissimile.
 - lui guadagna molti soldi con le medaglie di amsterdam e compra una casa `castelvecchio di Barga`
+- `il nido`, `la casa`, `il casolare` rappresentano la fanciullezza e la casa del poeta.
+- è un'immagine nuova della poesia e del poeta
+- riscrive il panorama poetico del periodo
+- questo è uno spazio protetto in cui al fanciullino non può succedere niente e in cui non può causare danni
+- anche qui viene spontaneo il confronto, la sua raccolta più famosa è `Myrice` (termine latino per le tamerici)
+- mentre per baudelaire ci sono dei simboli ambivalenti (come i fiori, negativi perchè appartengono alla terra e negativi perchè cresciendo se ne allontanano) qui abbiamo un ambiente diverso (come con la pianta Myrice che appartiene alla campagna che è un luogo positivo contrapposto alla città a cui appartengono caos e profitti, un luogo da cui scappare)
+- la Myrice rimanda alla poetica delle umili cose, quelle che possono essere viste solo da un fanciullino
+- la Myrice introduce ad ambiti e parole nuove, appartenenti al registro linguistico agricolo e delle credenze popolari, legate al mondo contadino
