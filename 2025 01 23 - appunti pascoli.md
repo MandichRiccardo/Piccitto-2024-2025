@@ -21,3 +21,7 @@
 - la Myrice rimanda alla poetica delle umili cose, quelle che possono essere viste solo da un fanciullino
 - la Myrice introduce ad ambiti e parole nuove, appartenenti al registro linguistico agricolo e delle credenze popolari, legate al mondo contadino
 - è vero che parla anche di vegetali comuni ma anche di molti fuori dall'ordinario e della vita quotidiana della campagna
+# X Agosto
+- il testo inizia con `San Lorenzo` serve a localizzare cronologicamente il testo
+- nella prima strofa si racconta delle `stelle cadenti` evento noto per avvenire in questa notte
+- nella seconda strofa si parla di una rondine uccisa mentre portava a casa la cena per i figli che si trovava sotto al tetto

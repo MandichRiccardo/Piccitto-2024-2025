@@ -30,34 +30,35 @@ oh! d'un pianto di stelle lo inondi
 quest'atomo opaco del Male!    
 
 # parafrasi
-San Lorenzo, io sono a conoscenza del perché
-così numerose stelle nell'aria serena
-si incendiano e cadono, perché le tue lacrime
-brillano nella volta celeste.
-Una rondine stava ritornando al suo nido:
-fu uccisa: cadde tra i rovi spinosi;
-nel becco aveva un insetto:
-era la cena per i suoi rondinini.
+San Lorenzo, io sono a conoscenza del perché    
+così numerose stelle nell'aria serena    
+si incendiano e cadono, perché le tue lacrime    
+brillano nella volta celeste.    
 
-Ora è la, con le ali spalancate e senza vita come se fosse stata crocifissa,
-con il verme rivolto verso il cielo lontano,
-e il suo nido è nell'ombra, che attende,
-e pian piano smettono di cinguettare.
+Una rondine stava ritornando al suo nido:    
+fu uccisa: cadde tra i rovi spinosi;    
+nel becco aveva un insetto:    
+era la cena per i suoi rondinini.    
 
-Anche un uomo stava tornando a casa:
-fu ucciso: disse perdono per gli assassini;
-e restò con gli occhi sbarrati come se avesse voluto gridare (ma la morte non gli diede il tempo)
-portava due bambole in dono alle figlie.
+Ora è la, con le ali spalancate e senza vita come se fosse stata crocifissa,    
+con il verme rivolto verso il cielo lontano,    
+e il suo nido è nell'ombra, che attende,    
+e pian piano smettono di cinguettare.    
 
-Ora là, nella casa solitaria,
-lo aspettano, aspettano inutilmente
-egli immobile, stupefatto, indica
-al cielo lontano le bambole.
+Anche un uomo stava tornando a casa:    
+fu ucciso: disse perdono per gli assassini;    
+e restò con gli occhi sbarrati come se avesse voluto gridare (ma la morte non gli diede il tempo)    
+portava due bambole in dono alle figlie.    
 
-E tu, oh Cielo infinito e immortale,
-dall'alto dei mondi sereni
-inondi la Terra dominata dal male
-di un pianto di stelle."
+Ora là, nella casa solitaria,    
+lo aspettano, aspettano inutilmente    
+egli immobile, stupefatto, indica    
+al cielo lontano le bambole.    
+
+E tu, oh Cielo infinito e immortale,    
+dall'alto dei mondi sereni    
+inondi la Terra dominata dal male    
+di un pianto di stelle."    
 
 # analisi del testo
 **Schema metrico**: La poesia è composta da sei quartine in cui si alternano endecasillabi e novenari
