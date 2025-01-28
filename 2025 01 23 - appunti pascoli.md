@@ -20,3 +20,4 @@
 - mentre per baudelaire ci sono dei simboli ambivalenti (come i fiori, negativi perchè appartengono alla terra e negativi perchè cresciendo se ne allontanano) qui abbiamo un ambiente diverso (come con la pianta Myrice che appartiene alla campagna che è un luogo positivo contrapposto alla città a cui appartengono caos e profitti, un luogo da cui scappare)
 - la Myrice rimanda alla poetica delle umili cose, quelle che possono essere viste solo da un fanciullino
 - la Myrice introduce ad ambiti e parole nuove, appartenenti al registro linguistico agricolo e delle credenze popolari, legate al mondo contadino
+- è vero che parla anche di vegetali comuni ma anche di molti fuori dall'ordinario e della vita quotidiana della campagna
