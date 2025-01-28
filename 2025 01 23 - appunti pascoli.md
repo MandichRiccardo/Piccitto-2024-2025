@@ -28,3 +28,4 @@
 - nella terza strofa troviamo i risultati di questa morte, il cadavere che ricorda una croce, il cielo (sua via di fuga) che si allontana e i piccoli che muoiono di fame e i loro versi che calano di volume e pigolano più piano
 - nella quarta strofa si passa dalla morte della rondine a quella del padre, morto anche lui la notte del 10 agosto.
 nella stessa strofa si parla del perdono del padre e di come stava portando due bambole in dono alle figlie
+- nella quinta strofa si parla della casa solitaria (romita = solitaria), dove il morto viene atteso invano (invano = senza risultato). il morto stesso ora è impossibilitato a muoversi e senza possibilità di fiatare, affida le bambole al cielo (a Dio) perchè le porti alle figlie
