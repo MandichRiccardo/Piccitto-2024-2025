@@ -41,3 +41,5 @@ lo schema metrico è `ABCBCCA`.
 - nel richiamo troviamo il lontano rumoreggiare di una tempesta marina (bubbolìo = onomatopea che indica il risuonare del tuono e della pioccia sul mare)
 - nella seconda strofa troviamo come prima cosa il cromatismo del rosso appartenente al tramonto riferito all'orizzonte subito seguito dal nero pece attribuito al monte che rappresenta le nuvole tempestose. in mezzo al nero delle nubi troviamo un casolare bianco che fa da metafora all'ala di un gabbiano.
 # Il Gelsomino notturno
+- la prima strofa si apre con `E` che è una congiunzione che collega il suo filo dei pensieri, quasi di un discorso interrotto, con la poesia.
+parla di come, in mezzo ai virbuni, i gelsomini notturni fioriscano durante la notte, quando lui pensa ai sui cari
