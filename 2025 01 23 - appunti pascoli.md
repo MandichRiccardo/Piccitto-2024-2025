@@ -44,3 +44,7 @@ lo schema metrico è `ABCBCCA`.
 - la prima strofa si apre con `E` che è una congiunzione che collega il suo filo dei pensieri, quasi di un discorso interrotto, con la poesia.
 parla di come, in mezzo ai virbuni, i gelsomini notturni fioriscano durante la notte, quando lui pensa ai sui cari. nel frattempo le falene (farfalle notturne, crepuscolo = notte)
 - nella seconda strofa iniziamo dicendo che è tutto silenzioso quindi stanno dormendo tutti andando a ribadire che è notte. solo una cosa fa un rumore molto lieve: dei pulcini protetti sotto l'ala della madre nel loro nido
+- nella terza poesia si va a parlare di:
+    - calici aperti che ricordano la forma dei gelsomini notturni.
+    - l'odore di fragole rosse è una sinestesia che parla di sensualità e amore.
+    - nasce l'erba sopra le fosse che parla di rinascita
