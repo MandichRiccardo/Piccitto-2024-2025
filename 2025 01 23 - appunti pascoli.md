@@ -40,3 +40,4 @@ inoltre si va a porre evidenza all'`atomo opaco del male` in riferimento al mond
 lo schema metrico è `ABCBCCA`.
 - nel richiamo troviamo il lontano rumoreggiare di una tempesta marina (bubbolìo = onomatopea che indica il risuonare del tuono e della pioccia sul mare)
 - nella seconda strofa troviamo come prima cosa il cromatismo del rosso appartenente al tramonto riferito all'orizzonte subito seguito dal nero pece attribuito al monte che rappresenta le nuvole tempestose. in mezzo al nero delle nubi troviamo un casolare bianco che fa da metafora all'ala di un gabbiano.
+# il gelsomino notturno
