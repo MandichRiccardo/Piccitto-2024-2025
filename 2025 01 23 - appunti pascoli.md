@@ -48,3 +48,7 @@ parla di come, in mezzo ai virbuni, i gelsomini notturni fioriscano durante la n
     - calici aperti che ricordano la forma dei gelsomini notturni.
     - l'odore di fragole rosse è una sinestesia che parla di sensualità e amore.
     - nasce l'erba sopra le fosse che parla di rinascita
+- nella quarta strofa si procede con le metafore e le figure retoriche riferendosi al cielo e alle stelle
+- nella quinta strofa ritroviamo l'odore di fragole rosse che ora viene portato dal vento e vediamo come i neosposi vanno in camera da letto e spengono la candela che fa luce
+- nella sesta strofa troviamo la chiusura dei petali e la conclusione della natte, cui una nuova felicità dentro al fiore ora richiuso.
+nella grande metafora che ha portato avanti in tutta la poesia in cui usa il fiore per parlare dei due sposi che concepiscono un figlio che ora si trova nel grembo della sposa
