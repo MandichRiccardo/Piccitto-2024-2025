@@ -53,3 +53,13 @@ parla di come, in mezzo ai virbuni, i gelsomini notturni fioriscano durante la n
 - nella sesta strofa troviamo la chiusura dei petali e la conclusione della natte, cui una nuova felicità dentro al fiore ora richiuso.
 nella grande metafora che ha portato avanti in tutta la poesia in cui usa il fiore per parlare dei due sposi che concepiscono un figlio che ora si trova nel grembo della sposa
 # Il Lampo
+- il lampo è un qualcosa che:
+    - squarcia le tenebre
+    - è istantaneo
+    - collega cielo e terra
+    - illuminazione = intuizione che, in questo caso, svela la vera faccia della realtà
+- anche quest'opera è, come `Il Temporale` una piccola ballata
+- nella prima strova si parla del ricevere un'intuizione rispetto alla terra
+- nella seconda strofa si va a descrivere quello che si comprende in questa rivelazione:
+    - la terra è di un viola spento, plumbea (livida), in sussulto (è sconvolta)
+    - il cielo è ingombro di nuvole, più che pieno, ne ha troppe, è tragicamente soverchiato da questo peso, da questa quantità
