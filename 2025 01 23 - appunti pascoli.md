@@ -63,3 +63,4 @@ nella grande metafora che ha portato avanti in tutta la poesia in cui usa il fio
 - nella seconda strofa si va a descrivere quello che si comprende in questa rivelazione:
     - la terra è di un viola spento, plumbea (livida), in sussulto (è sconvolta)
     - il cielo è ingombro di nuvole, più che pieno, ne ha troppe, è tragicamente soverchiato da questo peso, da questa quantità
+continua la descizione: troviamo l'ossimore creto da `tacito tumulto` e poi passiamo a una casa bianca che compare e scompare subito dopo (il lampo ce la fà vedere e finendo ce la toglie dalla vista), troviamo una similitudine `come un occhio` che ci introduce a una serie di aggettivi attribuiti all'occhio che si apre e si chiude, quasi istantaneamente, sopra al mondo, osservando tutto quello che c'è in quella notte
