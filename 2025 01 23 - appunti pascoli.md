@@ -52,3 +52,4 @@ parla di come, in mezzo ai virbuni, i gelsomini notturni fioriscano durante la n
 - nella quinta strofa ritroviamo l'odore di fragole rosse che ora viene portato dal vento e vediamo come i neosposi vanno in camera da letto e spengono la candela che fa luce
 - nella sesta strofa troviamo la chiusura dei petali e la conclusione della natte, cui una nuova felicità dentro al fiore ora richiuso.
 nella grande metafora che ha portato avanti in tutta la poesia in cui usa il fiore per parlare dei due sposi che concepiscono un figlio che ora si trova nel grembo della sposa
+# Il Lampo
