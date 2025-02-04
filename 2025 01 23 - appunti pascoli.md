@@ -78,3 +78,10 @@ la valeriana che cresce sul muro serve a mostrare che è da molto che è lì il 
     possiamo trovare delle posizioni spaziali e temporali che portano ad un prepararsi all'idea della propria morte e a vedere il lato positivo della nebbia che lo protegge da tutto questo
 - nella quarta strofa
     - supplica che nulla entri più nel suo cuore e che quindi non possa provare emozioni, che gli consenta di stare al cimitero a vedere un solo cipresso
+# la grande proletaria si è mossa
+- l'adesione di giovannino al movimento socialista deriva dall'espansione del suo concetto di nido che vede nel socialismo, per criteri non politici, che nascono dal suo trauma
+- del tutto inconsapevole del dibattito sulla proprietà privata e altri argomenti politici nel 1911 giovannino in un teatro celebra la guerra di libia.
+- lui nella guerra di libia vede la soluzione al grande problema migratorio italiano in quanto uno ristabilirsi della grandezza italiana, andata persa dai tempi dell'impero romano
+- più che al socialismo si avvicina al socialismo nazionalistico
+- dopo questo si chiude nel giardino di casa sua interessandosi solo a sè stesso
+- siamo nel novembre del 1911 e la guerra (di libia) è già iniziata da qualche mese con una forte resistenza da parte della popolazione locale
