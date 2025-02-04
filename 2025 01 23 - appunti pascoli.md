@@ -66,3 +66,15 @@ nella grande metafora che ha portato avanti in tutta la poesia in cui usa il fio
 continua la descizione: troviamo l'ossimore creto da `tacito tumulto` e poi passiamo a una casa bianca che compare e scompare subito dopo (il lampo ce la fà vedere e finendo ce la toglie dalla vista), troviamo una similitudine `come un occhio` che ci introduce a una serie di aggettivi attribuiti all'occhio che si apre e si chiude, quasi istantaneamente, sopra al mondo, osservando tutto quello che c'è in quella notte
 # la nebbia
 - nella prima strofa troviamo la nebbia, che nasconde, e il fumo (l'alba), che comincia a far intravedere qualcosa, associa i tuoni a delle frane celesti, queste metafore danno l'idea di grandi stravolgimenti
+- la seconda strofa comincia come la prima e come poi inizieranno tutte le altre: serve a dare il ritmo della poesia
+supplica di nascondere quello che è morto perchè vuole nascondere il passato e non affrontarlo
+la valeriana che cresce sul muro serve a mostrare che è da molto che è lì il muro
+- nella seconda strofa si parla di essere pieni ricolmi di pianto
+    - il pane nero simboleggia una vita di stenti, sostenuta dalla tristezza
+    - i soavi mieli servono a rappresentare l'addolcire la vita quotidiana con marmellate e mieli (dei dolcificanti naturali)
+- nella terza strofa
+    - **`che vogliono ch’ami e che vada!`** serve a rappresentare lo spezzare i suoi limiti e trovare la felicità
+    - il resto della strova serve a dire che ormai non può raggiungere l'obbiettivo dato dal verso precedente ma che ormai non può più fare nulla e avere solo piccole soddisfazioni.
+    possiamo trovare delle posizioni spaziali e temporali che portano ad un prepararsi all'idea della propria morte e a vedere il lato positivo della nebbia che lo protegge da tutto questo
+- nella quarta strofa
+    - supplica che nulla entri più nel suo cuore e che quindi non possa provare emozioni, che gli consenta di stare al cimitero a vedere un solo cipresso
