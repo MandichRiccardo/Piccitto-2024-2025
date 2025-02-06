@@ -85,3 +85,4 @@ la valeriana che cresce sul muro serve a mostrare che è da molto che è lì il 
 - più che al socialismo si avvicina al socialismo nazionalistico
 - dopo questo si chiude nel giardino di casa sua interessandosi solo a sè stesso
 - siamo nel novembre del 1911 e la guerra (di libia) è già iniziata da qualche mese con una forte resistenza da parte della popolazione locale
+# Italy. sacro all'Italia raminga
