@@ -1,13 +1,15 @@
 # Il manifesto dei fasci di combattimento (1919) – Programma di San Sepolcro
 ## Italiani!
 
-Ecco il programma di un movimento genuinamente italiano. Rivoluzionario perché antidogmatico; fortemente innovatore antipregiudiziaiolo.
+Ecco il programma di un movimento sanamente italiano. Rivoluzionario perché antidogmatico; fortemente innovatore perchè antipregiudizievole.
+noi poniamo la valorizzazione della guerra al di sopra di tutto e tutti
+gli altri problemi: burocrazia, amministrativi, giuridici, scolastici, coloniali, ecc. li tracceremo quando avremo creato la classe dirigente
 
 ## Per il problema politico:
 ### Noi vogliamo:
 
 Suffragio universale a scrutinio di lista regionale, con rappresentanza proporzionale, voto ed eleggibilità per le donne.
-Il minimo di età per gli elettori abbassato ai I 8 anni; quello per i deputati abbassato ai 25 anni.
+Il minimo di età per gli elettori abbassato ai 18 anni; quello per i deputati abbassato ai 25 anni.
 L’abolizione del Senato.
 La convocazione di una Assemblea Nazionale per la durata di tre anni, il cui primo compito sia quello di stabilire la forma di costituzione dello Stato.
 La formazione di Consigli Nazionali tecnici del lavoro, dell’industria, dei trasporti, dell’igiene sociale, delle comunicazioni, ecc. eletti dalle collettività professionali o di mestiere, con poteri legislativi, e diritto di eleggere un Commissario Generale con poteri di Ministro.
