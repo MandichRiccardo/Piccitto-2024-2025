@@ -1,0 +1,14 @@
+- mussolini si dichiarava anti-plutocratico (dal greco pluto=ricchezza e cratos=governo, quindi contrario al governo dei ricchi)
+- era estremamente abile a capire il movimento politico nelle campagne e capisce che questa non era la migliore linea di pensiero
+    - si rende conto che i socialisti nelle campagne si organizzano molto in leghe e cooperative
+        - i contadini si ritrovavano senza lavoro in quanto i latifondisti (proprietari terrieri) assumevano pochi tutto l'anno in quanto dirante la crescita non c'era necessità di forza lavoro e li pagano poco data la mancanza di copertura sindacale
+        - i latifondisti hanno paura che venga intaccato il principio della proprietà privata e che i latifondi (le loro terre) vengano nazionalizzate in seguito all'ondata ideologica russa
+    - nota anche la microborghesia (ossia i piccoli mercanti e i burocrati da ufficio)
+    - occorreva un partito gerarchicamente e capillarmente organizzato
+    - rende il partito quelli che sono gli antipodi del socialismo
+    - si rinnova mostrandosi con una veste nuova e rimuovendo tutti i punti in comune come i socialisti
+- nel trasformare il movimento nel partito riceve un grande aiuto da giolitti che capisce che la platea politica si sta radicalizzando e cerca l'appoggio di entrambi
+- nel cercare l'appoggio di entrambi cerca di far entrare mussolini nelle coalizioni (blocchi nazionali) e questo porta mussolini a far eleggere 36 deputati (non molti ma gli permetteranno di andare al governo)
+- nel formare il governo giolitti cerca di farne uno il più antisocialista possibile che lo porta a compiere un grande errore: far entrare i fascisti
+- la violenza è insita nel partito fascista fin dalla sua nascita e ora si manifesta con le squadraccie delle camice nere che minacciavano le loro vittime usando l'olio di ricino con intento intimidatorio
+- il motivo per cui viene votato e per cui viene incluso da giolitti è che quando il governo fascita si instaurerà le squadracce verranno ritirate
