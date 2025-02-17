@@ -17,3 +17,5 @@
 - il mito della `vittoria mutilata` portato avanti da D'Annunzio
 - `stato d'assedio` uno stato dichiarato in caso di grave pericolo in cui il Re è autorizzato a chiamare l'assedio per ripristinare la legalità e l'ordine
 - nel 1943 mussolini viene sfiduciato e arrestato del suo stesso consiglio del fascismo che, durante il ventennio, era andato a sostituire nel potere lo stesso parlamento
+- con la legge acerbo Mussolini ha preso completamente il potere in italia
+- nel discorso del 3 di gennaio mussolini si prende tutta la responsabilità dell'omicidio matteotti (puoi trovare tutto il discorso nel file `2025 02 10 - discorsi di mussolini.pdf` ![file](./2025%2002%2010%20-%20discorsi%20di%20mussolini.pdf))
