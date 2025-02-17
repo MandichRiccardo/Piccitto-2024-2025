@@ -16,3 +16,4 @@
 - il `biennio rosso` sono due anni di grande agitazione e di richieste proletarie di spirito socialista
 - il mito della `vittoria mutilata` portato avanti da D'Annunzio
 - `stato d'assedio` uno stato dichiarato in caso di grave pericolo in cui il Re è autorizzato a chiamare l'assedio per ripristinare la legalità e l'ordine
+- nel 1943 mussolini viene sfiduciato e arrestato del suo stesso consiglio del fascismo che, durante il ventennio, era andato a sostituire nel potere lo stesso parlamento
