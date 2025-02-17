@@ -15,3 +15,4 @@
 
 - il `biennio rosso` sono due anni di grande agitazione e di richieste proletarie di spirito socialista
 - il mito della `vittoria mutilata` portato avanti da D'Annunzio
+- `stato d'assedio` uno stato dichiarato in caso di grave pericolo in cui il Re è autorizzato a chiamare l'assedio per ripristinare la legalità e l'ordine
