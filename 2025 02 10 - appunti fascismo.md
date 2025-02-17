@@ -12,3 +12,6 @@
 - nel formare il governo giolitti cerca di farne uno il più antisocialista possibile che lo porta a compiere un grande errore: far entrare i fascisti
 - la violenza è insita nel partito fascista fin dalla sua nascita e ora si manifesta con le squadraccie delle camice nere che minacciavano le loro vittime usando l'olio di ricino con intento intimidatorio
 - il motivo per cui viene votato e per cui viene incluso da giolitti è che quando il governo fascita si instaurerà le squadracce verranno ritirate ( o almeno questo è quello che viene detto da mussolini)
+
+- il `biennio rosso` sono due anni di grande agitazione e di richieste proletarie di spirito socialista
+- il mito della `vittoria mutilata` portato avanti da D'Annunzio
