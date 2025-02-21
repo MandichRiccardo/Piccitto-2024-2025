@@ -26,3 +26,5 @@
 - vengono sciolti tutti i partiti a eccezzione di quello fascista
 - Fu ripristinata la pena di morte per chi attentava alla vita dei reali o del capo del governo o si rendeva responsabile di reati contro lo Stato.
 - Furono inoltre costituiti una polizia politica, l’OVRA (Organiz- zazione per la Vigilanza e la Repressione dell’Antifascismo) e il Tribunale speciale per la difesa dello Stato, incaricati rispettivamente di arrestare e condannare gli oppositori politici e chiunque fosse considerato una minaccia per la sicurezza del paese.
+- Antonio Gramsci era un grande intellettuale che viene arrestato nel 26 e viene incarcerato per 20 anni (muore pochi mesi dopo la scarcerazione)
+- similmente a lui molti intellettuali italiani sono stati esiliati dalle città e confinati in alcuni posti molto difficilmente raggiungibili
