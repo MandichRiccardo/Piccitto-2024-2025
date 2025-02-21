@@ -19,3 +19,6 @@
 - nel 1943 mussolini viene sfiduciato e arrestato del suo stesso consiglio del fascismo che, durante il ventennio, era andato a sostituire nel potere lo stesso parlamento
 - con la legge acerbo Mussolini ha preso completamente il potere in italia
 - nel discorso del 3 di gennaio mussolini si prende tutta la responsabilità dell'omicidio matteotti ![puoi trovare tutto il discorso nel file "2025 02 10 - discorsi di mussolini.pdf"](2025%2002%2010%20-%20discorsi%20di%20mussolini.jpg)
+- tra il 1925 e il '26 vengono promulgate le leggi fascistissime concepite dal giurista `Alfredo Rocco`
+- queste leggi accentrano i 3 poteri in mussolini e reprimono il dissenso trasformando l'italia in uno stato di polizia
+- viene abolito il diritto di sciopero e di serrata (la chiusura dei negozi e delle fabbriche)
