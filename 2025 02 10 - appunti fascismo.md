@@ -22,3 +22,7 @@
 - tra il 1925 e il '26 vengono promulgate le leggi fascistissime concepite dal giurista `Alfredo Rocco`
 - queste leggi accentrano i 3 poteri in mussolini e reprimono il dissenso trasformando l'italia in uno stato di polizia
 - viene abolito il diritto di sciopero e di serrata (la chiusura dei negozi e delle fabbriche)
+- tra le libertà represse troviamo quella di stampa di scelta e di parola (unico giornale rimasto aperto è quello fascista, le riviste vengono cancellate e sostituite con quelle di regime)
+- vengono sciolti tutti i partiti a eccezzione di quello fascista
+- Fu ripristinata la pena di morte per chi attentava alla vita dei reali o del capo del governo o si rendeva responsabile di reati contro lo Stato.
+- Furono inoltre costituiti una polizia politica, l’OVRA (Organiz- zazione per la Vigilanza e la Repressione dell’Antifascismo) e il Tribunale speciale per la difesa dello Stato, incaricati rispettivamente di arrestare e condannare gli oppositori politici e chiunque fosse considerato una minaccia per la sicurezza del paese.
