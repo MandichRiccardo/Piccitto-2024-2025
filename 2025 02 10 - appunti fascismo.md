@@ -29,3 +29,4 @@
 - Molti intellettuali italiani sono stati esiliati dalle città e confinati in alcuni posti molto difficilmente raggiungibili (avevano un obbligo di firma due volte al giorno in questura per assicurarsi che non andassero via)
 - Carlo Levi viene confinato in un paese del sud, un luogo talmente isolato da fare in modo che lui non costituisca più una minaccia per il regime
 - Antonio Gramsci era un grande intellettuale che viene arrestato nel 26 e viene incarcerato per 20 anni (muore pochi mesi dopo la scarcerazione)
+- `Confino` = obbligo temporaneo di risiedere in un Comune diverso da quello di residenza
