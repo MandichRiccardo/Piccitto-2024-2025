@@ -108,20 +108,20 @@ E forse un giorno, guardando serenamente al passato, si giudicherà che la prova
 - Ugo Bernasconi
 - Cesare Biondi (Università degli Studi di Siena)
 - Mario Borsa
-Virgilio Brocchi
-Pietro Enrico Brunelli (Università degli Studi di Napoli)
-Filippo Burzio
-Andrea Caffi
-Alessandro Cagli (avvocato di Ancona)
-Piero Calamandrei (Università degli Studi di Firenze)
-Pietro Capasso (Università degli Studi di Napoli)
-Giulio Caprin
-Enrico Carrara
-Mario Chini
-Alberto Cianca
-Raffaele Ciasca (Università degli Studi di Messina)
-Ugo Coli (Università degli Studi di Firenze)
-Epicarmo Corbino (Università degli Studi di Firenze)
+- Virgilio Brocchi
+- Pietro Enrico Brunelli (Università degli Studi di Napoli)
+- Filippo Burzio
+- Andrea Caffi
+- Alessandro Cagli (avvocato di Ancona)
+- Piero Calamandrei (Università degli Studi di Firenze)
+- Pietro Capasso (Università degli Studi di Napoli)
+- Giulio Caprin
+- Enrico Carrara
+- Mario Chini
+- Alberto Cianca
+- Raffaele Ciasca (Università degli Studi di Messina)
+- Ugo Coli (Università degli Studi di Firenze)
+- Epicarmo Corbino (Università degli Studi di Firenze)
 Luigi Credaro
 Enrichetta Carafa Capecelatro (Accademia Pontaniana)
 Alessandro D'Atri (anarchico, giornalista di Foggia, direttore de "L'Italie Libre - Organe de la démocratie" settimanale politico di opposizione di Parigi)
