@@ -122,200 +122,200 @@ E forse un giorno, guardando serenamente al passato, si giudicherà che la prova
 - Raffaele Ciasca (Università degli Studi di Messina)
 - Ugo Coli (Università degli Studi di Firenze)
 - Epicarmo Corbino (Università degli Studi di Firenze)
-Luigi Credaro
-Enrichetta Carafa Capecelatro (Accademia Pontaniana)
-Alessandro D'Atri (anarchico, giornalista di Foggia, direttore de "L'Italie Libre - Organe de la démocratie" settimanale politico di opposizione di Parigi)
-Gaetano De Sanctis (Università degli Studi di Torino)
-Francesco De Sarlo (Università degli Studi di Firenze)
-Francesco Degni (Università degli Studi di Napoli)
-Vincenzo Del Giudice (Università degli Studi di Firenze)
-Guido Della Valle (Università degli studi di Napoli)
-Agostino Diana (Università degli Studi di Pisa)
-Giuseppe Donati
-Mario Falco (Università degli Studi di Milano)
-Francesco Fancello
-Guido Ferrando (Università degli Studi di Firenze)
-Mario Ferrara
-Enrico Finzi (Istituto di Scienze Sociali di Firenze)
-Ugo Forti (Università degli Studi di Napoli)
-Umberto Galeota
-Giuseppe Gangale
-Panfilo Gentile
-Vincenzo Gerace
-Annibale Gilardoni
-Achille Giovine (Istituto Superiore Navale di Napoli)
-Augusto Graziani (Università degli Studi di Napoli)
-Mario Grieco (avvocato, scrittore di Napoli)
-Ezechiele Guardascione (pittore di Napoli)
-Gustavo Ingrosso (Università degli Studi di Napoli)
-Arturo Labriola
-Eustachio Paolo Lamanna (Università degli Studi di Firenze)
-Eugenia Vitali Lebrecht (Associazione Nazionale per la Donna)
-Arrigo Levasti (Biblioteca Filosofica di Firenze)
-Alessandro Levi (Università degli Studi di Parma)
-Ludovico Limentani (Università degli Studi di Firenze)
-Carlo Linati
-Luigi Lordi (Istituto Superiore di Commercio di Napoli)
-Giovanni Lorenzoni (Università degli Studi di Firenze)
-Aldobrandino Malvezzi de' Medici (Università degli Studi di Firenze)
-Augusto Mancini (Università degli Studi di Pisa)
-Carlo Maranelli (direttore dell'Istituto Superiore di Commercio di Napoli)
-Gherardo Marone
-Nello Martinelli (Università di Malta)
-Guido Martini (ex direttore della Biblioteca Nazionale di Napoli)
-Salvatore Mastrogiovanni
-Giuseppe Melli (Università degli Studi di Firenze)
-Francesco Messineo (Università degli Studi di Macerata)
-Giovanni Miranda (Università degli Studi di Napoli)
-Pompeo Molmenti
-Eugenio Montale
-Giuseppe Montesano (Università degli Studi di Roma)
-Marino Moretti
-Gioacchino Nicoletti (Università degli Studi di Roma)[24]
-Adriano Nisco
-Pietro Paolo Trompeo (Università degli Studi di Roma)
-Novello Papafava di Carraresi (giornalista, scrittore di Padova)
-Ernesto Pascal (Università degli Studi di Napoli)
-Mario Pascal (Università degli Studi di Napoli)
-Giorgio Pasquali (Università degli Studi di Firenze)
-Alessandro Pellegrini (Federazione Italiana delle Biblioteche Popolari)
-Raffaello Piccoli (Università degli Studi di Napoli)
-Gaetano Pieraccini
-Mario Ponzio di San Sebastiano
-Eugenio Rignano
-Meuccio Ruini
-Alfredo Vittorio Russo (avvocato di Napoli, giornalista de "La Rivista del Mezzogiorno" di Napoli, ex Sindaco di Napoli)
-Enrico Ruta
-Cesare Sacerdoti (Università degli Studi di Pisa)
-Gaetano Salvemini (Università degli Studi di Firenze)
-Giuseppe Salvioli (Università degli Studi di Napoli)
-Michele Saponaro
-Emilio Scaglione (giornalista di Montenero di Bisaccia (CB), de "Il Mondo" di Roma)
-Paolo Scarfoglio (giornalista di Napoli, direttore de "Il Mattino" di Napoli)
-Domenico Schiappoli (Università degli Studi di Napoli)
-Pio Schinetti
-Michelangelo Schipa (Università degli Studi di Napoli)
-Pietro Silva
-Manfredi Siotto Pintore (Università degli Studi di Firenze)
-Enrico Somaré
-Adriano Tilgher
-Luigi Tonelli
-Vincenzo Torraca
-Silvio Trentini (Istituto Superiore di Commercio di Venezia)
-Giuseppe Valeri (Università degli Studi di Firenze)
-Vittorio Vettori
-Giovanni Vidari (Università degli Studi di Torino)
-Mario Vinciguerra
-Vito Volterra (Università degli Studi di Roma)
-Umberto Zanotti Bianco
-Adolfo Zerboglio
-Giuseppe Zippei (Università degli Studi di Roma)[25]
-Angelo Andrea Zottoli
+- Luigi Credaro
+- Enrichetta Carafa Capecelatro (Accademia Pontaniana)
+- Alessandro D'Atri (anarchico, giornalista di Foggia, direttore de "L'Italie Libre - Organe de la démocratie" settimanale politico - di opposizione di Parigi)
+- Gaetano De Sanctis (Università degli Studi di Torino)
+- Francesco De Sarlo (Università degli Studi di Firenze)
+- Francesco Degni (Università degli Studi di Napoli)
+- Vincenzo Del Giudice (Università degli Studi di Firenze)
+- Guido Della Valle (Università degli studi di Napoli)
+- Agostino Diana (Università degli Studi di Pisa)
+- Giuseppe Donati
+- Mario Falco (Università degli Studi di Milano)
+- Francesco Fancello
+- Guido Ferrando (Università degli Studi di Firenze)
+- Mario Ferrara
+- Enrico Finzi (Istituto di Scienze Sociali di Firenze)
+- Ugo Forti (Università degli Studi di Napoli)
+- Umberto Galeota
+- Giuseppe Gangale
+- Panfilo Gentile
+- Vincenzo Gerace
+- Annibale Gilardoni
+- Achille Giovine (Istituto Superiore Navale di Napoli)
+- Augusto Graziani (Università degli Studi di Napoli)
+- Mario Grieco (avvocato, scrittore di Napoli)
+- Ezechiele Guardascione (pittore di Napoli)
+- Gustavo Ingrosso (Università degli Studi di Napoli)
+- Arturo Labriola
+- Eustachio Paolo Lamanna (Università degli Studi di Firenze)
+- Eugenia Vitali Lebrecht (Associazione Nazionale per la Donna)
+- Arrigo Levasti (Biblioteca Filosofica di Firenze)
+- Alessandro Levi (Università degli Studi di Parma)
+- Ludovico Limentani (Università degli Studi di Firenze)
+- Carlo Linati
+- Luigi Lordi (Istituto Superiore di Commercio di Napoli)
+- Giovanni Lorenzoni (Università degli Studi di Firenze)
+- Aldobrandino Malvezzi de' Medici (Università degli Studi di Firenze)
+- Augusto Mancini (Università degli Studi di Pisa)
+- Carlo Maranelli (direttore dell'Istituto Superiore di Commercio di Napoli)
+- Gherardo Marone
+- Nello Martinelli (Università di Malta)
+- Guido Martini (ex direttore della Biblioteca Nazionale di Napoli)
+- Salvatore Mastrogiovanni
+- Giuseppe Melli (Università degli Studi di Firenze)
+- Francesco Messineo (Università degli Studi di Macerata)
+- Giovanni Miranda (Università degli Studi di Napoli)
+- Pompeo Molmenti
+- Eugenio Montale
+- Giuseppe Montesano (Università degli Studi di Roma)
+- Marino Moretti
+- Gioacchino Nicoletti (Università degli Studi di Roma)
+- Adriano Nisco
+- Pietro Paolo Trompeo (Università degli Studi di Roma)
+- Novello Papafava di Carraresi (giornalista, scrittore di Padova)
+- Ernesto Pascal (Università degli Studi di Napoli)
+- Mario Pascal (Università degli Studi di Napoli)
+- Giorgio Pasquali (Università degli Studi di Firenze)
+- Alessandro Pellegrini (Federazione Italiana delle Biblioteche Popolari)
+- Raffaello Piccoli (Università degli Studi di Napoli)
+- Gaetano Pieraccini
+- Mario Ponzio di San Sebastiano
+- Eugenio Rignano
+- Meuccio Ruini
+- Alfredo Vittorio Russo (avvocato di Napoli, giornalista de "La Rivista del Mezzogiorno" di Napoli, ex Sindaco di Napoli)
+- Enrico Ruta
+- Cesare Sacerdoti (Università degli Studi di Pisa)
+- Gaetano Salvemini (Università degli Studi di Firenze)
+- Giuseppe Salvioli (Università degli Studi di Napoli)
+- Michele Saponaro
+- Emilio Scaglione (giornalista di Montenero di Bisaccia (CB), de "Il Mondo" di Roma)
+- Paolo Scarfoglio (giornalista di Napoli, direttore de "Il Mattino" di Napoli)
+- Domenico Schiappoli (Università degli Studi di Napoli)
+- Pio Schinetti
+- Michelangelo Schipa (Università degli Studi di Napoli)
+- Pietro Silva
+- Manfredi Siotto Pintore (Università degli Studi di Firenze)
+- Enrico Somaré
+- Adriano Tilgher
+- Luigi Tonelli
+- Vincenzo Torraca
+- Silvio Trentini (Istituto Superiore di Commercio di Venezia)
+- Giuseppe Valeri (Università degli Studi di Firenze)
+- Vittorio Vettori
+- Giovanni Vidari (Università degli Studi di Torino)
+- Mario Vinciguerra
+- Vito Volterra (Università degli Studi di Roma)
+- Umberto Zanotti Bianco
+- Adolfo Zerboglio
+- Giuseppe Zippei (Università degli Studi di Roma)
+- Angelo Andrea Zottoli
 ## Venerdì 22 maggio 1925 fu pubblicato un terzo elenco parziale su:
 
-Filippo Abignente jr
-Vincenzo Ariola (Università degli Studi di Genova)
-Pietro Albertoni (Università degli Studi di Bologna)
-Sibilla Aleramo
-Luigi Armanni (Istituto Superiore di Commercio di Venezia)
-Carlo Avetta (Università degli Studi di Parma)
-Riccardo Bachi (Università degli Studi di Parma)
-Giuseppe Bagnera (Università degli Studi di Roma)
-Riccardo Balsamo Crivelli
-Giulio Battaglini (Università degli Studi di Pavia)
-Adriano Belli (Istituto Superiore di Commercio di Venezia)
-Giovanni Battista Belloni (Università degli Studi di Padova)
-Giovanni Bertacchi (Università degli Studi di Padova)
-Giulio Bisconcini (Università degli Studi di Roma)
-Giorgio Bosco (Istituto Superiore di Commercio di Napoli)
-Mario Bracci (Università degli Studi di Sassari)
-Costantino Bresciani Turroni (Università degli Studi di Genova)
-Ignazio Brunelli (Università degli Studi di Ferrara)
-Natale Busetto (Magistero Superiore di Napoli)
-Gennaro Calcagni (Università degli Studi di Padova)
-Vittorio Cannavina
-Luigi Capponago del Monte
-Santino Caramella
-Mario Carrara (Università degli Studi di Torino)
-Mario Casella (Università degli Studi di Firenze)
-Adolfo Cassiani Ingoni (Liceo Classico "Alessandro Volta" di Como)
-Guido Castelnuovo (Università degli Studi di Roma)
-Roberto Ceni (Istituto Superiore di Commercio di Trieste)
-Emidio Cesari
-Raffaele Chiarolanza (Università degli Studi di Napoli)
-Giulio Colajanni
-Francesco Coletti (Università degli Studi di Pavia)
-Michele Coppola (Università degli Studi di Napoli)
-Giovanni Costetti
-Giorgio Dal Piaz (Università degli Studi di Padova)
-Floriano Del Secolo
-Giuseppe Delogu (Università degli Studi di Genova)
-Carano Donvito
-Giorgio Errera (Università degli Studi di Pavia)
-Angelo Fraccacreta (Università degli Studi di Messina)
-Plinio Fraccaro (Università degli Studi di Pavia)
-Enrico Maria Fusco
-Attilio Gentili (Università degli Studi di Pisa)
-Giambattista Grassi Bertazzi (Università degli Studi di Catania)
-Benvenuto Griziotti (Università degli Studi di Pavia)
-Vittorio Gui (direttore d'orchestra, compositore di Roma)
-Erminio Iuvalta (Università degli Studi di Torino)
-Ferdinando Laghi (Università degli Studi di Parma)
-Ernesto Laura (Università degli Studi di Padova)
-Mary Lenardinis
-Adolfo Levi (Università degli Studi di Pavia)
-Beppo Levi (Università degli Studi di Parma)
-Giuseppe Levi (Università degli Studi di Torino)
-Tullio Levi Civita (Università degli Studi di Roma)
-Paola Lombroso
-Arrigo Lorenzi (Università degli Studi di Padova)
-Gino Luzzatti (Istituto Superiore di Commercio di Venezia)
-Edgardo Maddalena (Istituto Superiore Femminile di Magistero di Firenze)
-Efisio Mameli (Università degli Studi di Parma)
-Flaminio Mancaleoni (Università degli Studi di Sassari)
-Carlo Manes (Università degli Studi di Roma)
-Teodosio Marchi (Università degli Studi di Parma)
-Mariano Mareca (Università degli Studi di Pavia)
-Luisa Marinoni
-Piero Marrucchi
-Lavinia Mazzucchetti (Università degli Studi di Genova)
-Roberto Melchiorre (Università degli Studi di Modena)
-Silvio Giuseppe Mercati (Università degli Studi di Catania)
-Attilio Momigliano (Università degli Studi di Pisa)
-G. Montaini
-Giovanni Montanelli (Università degli Studi di Firenze)
-Assunto Mori (Istituto Superiore Femminile di Magistero di Roma)
-Benedetto Morpurgo (Università degli Studi di Torino)
-Gaetano Mosca (Università degli Studi di Roma)
-Alessandro Padoa
-Maurizio Padoa (Università degli Studi di Parma)
-Enzo Palmieri
-Ugo Enrico Paoli (Università degli Studi di Firenze)
-Carlo Pascal (Università degli Studi di Pavia)
-Gian Giacomo Perrando (Università degli Studi di Genova)
-Decio Pettoello (Università di Cambridge)
-V. Piranesi
-Giulio Pittarelli (Università degli Studi di Roma)
-Aldo Pontiroli
-Angelo Pugliese (Università degli Studi di Milano)
-Cesare Ranzoli (Università degli Studi di Genova)
-Giuseppe Rensi (Università degli Studi di Genova)
-Vincenzo Rivera (Università degli Studi di Bari)
-Giulio Emanuele Rizzo (Università degli Studi di Napoli)
-Pasquale Romano
-Luigi Rossi (Università degli Studi di Roma)
-Luigi Sabbatani (Università degli Studi di Padova)
-Luigi Sala (Università degli Studi di Pavia)
-Ireneo Sanesi (Università degli Studi di Pavia)
-Giuseppe Santoro (Università degli Studi di Napoli)
-Emanuele Sella (Università degli Studi di Genova)
-Francesco Severi (Università degli Studi di Roma)
-Raffaello Silvestrini (Università degli Studi di Perugia)
-Siro Solazzi (Università degli Studi di Pavia)
-Aldo Sorani
-Enrico Tedeschi (Università degli Studi di Padova)
-Nunzio Vaccalluzzo (Università degli Studi di Catania)
-Manara Valgimigli (Università degli Studi di Pisa)
-Natale Vianello
-Guido Zacchetti
-Giuseppe Zampini
+- Filippo Abignente jr
+- Vincenzo Ariola (Università degli Studi di Genova)
+- Pietro Albertoni (Università degli Studi di Bologna)
+- Sibilla Aleramo
+- Luigi Armanni (Istituto Superiore di Commercio di Venezia)
+- Carlo Avetta (Università degli Studi di Parma)
+- Riccardo Bachi (Università degli Studi di Parma)
+- Giuseppe Bagnera (Università degli Studi di Roma)
+- Riccardo Balsamo Crivelli
+- Giulio Battaglini (Università degli Studi di Pavia)
+- Adriano Belli (Istituto Superiore di Commercio di Venezia)
+- Giovanni Battista Belloni (Università degli Studi di Padova)
+- Giovanni Bertacchi (Università degli Studi di Padova)
+- Giulio Bisconcini (Università degli Studi di Roma)
+- Giorgio Bosco (Istituto Superiore di Commercio di Napoli)
+- Mario Bracci (Università degli Studi di Sassari)
+- Costantino Bresciani Turroni (Università degli Studi di Genova)
+- Ignazio Brunelli (Università degli Studi di Ferrara)
+- Natale Busetto (Magistero Superiore di Napoli)
+- Gennaro Calcagni (Università degli Studi di Padova)
+- Vittorio Cannavina
+- Luigi Capponago del Monte
+- Santino Caramella
+- Mario Carrara (Università degli Studi di Torino)
+- Mario Casella (Università degli Studi di Firenze)
+- Adolfo Cassiani Ingoni (Liceo Classico "Alessandro Volta" di Como)
+- Guido Castelnuovo (Università degli Studi di Roma)
+- Roberto Ceni (Istituto Superiore di Commercio di Trieste)
+- Emidio Cesari
+- Raffaele Chiarolanza (Università degli Studi di Napoli)
+- Giulio Colajanni
+- Francesco Coletti (Università degli Studi di Pavia)
+- Michele Coppola (Università degli Studi di Napoli)
+- Giovanni Costetti
+- Giorgio Dal Piaz (Università degli Studi di Padova)
+- Floriano Del Secolo
+- Giuseppe Delogu (Università degli Studi di Genova)
+- Carano Donvito
+- Giorgio Errera (Università degli Studi di Pavia)
+- Angelo Fraccacreta (Università degli Studi di Messina)
+- Plinio Fraccaro (Università degli Studi di Pavia)
+- Enrico Maria Fusco
+- Attilio Gentili (Università degli Studi di Pisa)
+- Giambattista Grassi Bertazzi (Università degli Studi di Catania)
+- Benvenuto Griziotti (Università degli Studi di Pavia)
+- Vittorio Gui (direttore d'orchestra, compositore di Roma)
+- Erminio Iuvalta (Università degli Studi di Torino)
+- Ferdinando Laghi (Università degli Studi di Parma)
+- Ernesto Laura (Università degli Studi di Padova)
+- Mary Lenardinis
+- Adolfo Levi (Università degli Studi di Pavia)
+- Beppo Levi (Università degli Studi di Parma)
+- Giuseppe Levi (Università degli Studi di Torino)
+- Tullio Levi Civita (Università degli Studi di Roma)
+- Paola Lombroso
+- Arrigo Lorenzi (Università degli Studi di Padova)
+- Gino Luzzatti (Istituto Superiore di Commercio di Venezia)
+- Edgardo Maddalena (Istituto Superiore Femminile di Magistero di Firenze)
+- Efisio Mameli (Università degli Studi di Parma)
+- Flaminio Mancaleoni (Università degli Studi di Sassari)
+- Carlo Manes (Università degli Studi di Roma)
+- Teodosio Marchi (Università degli Studi di Parma)
+- Mariano Mareca (Università degli Studi di Pavia)
+- Luisa Marinoni
+- Piero Marrucchi
+- Lavinia Mazzucchetti (Università degli Studi di Genova)
+- Roberto Melchiorre (Università degli Studi di Modena)
+- Silvio Giuseppe Mercati (Università degli Studi di Catania)
+- Attilio Momigliano (Università degli Studi di Pisa)
+- G. Montaini
+- Giovanni Montanelli (Università degli Studi di Firenze)
+- Assunto Mori (Istituto Superiore Femminile di Magistero di Roma)
+- Benedetto Morpurgo (Università degli Studi di Torino)
+- Gaetano Mosca (Università degli Studi di Roma)
+- Alessandro Padoa
+- Maurizio Padoa (Università degli Studi di Parma)
+- Enzo Palmieri
+- Ugo Enrico Paoli (Università degli Studi di Firenze)
+- Carlo Pascal (Università degli Studi di Pavia)
+- Gian Giacomo Perrando (Università degli Studi di Genova)
+- Decio Pettoello (Università di Cambridge)
+- V. Piranesi
+- Giulio Pittarelli (Università degli Studi di Roma)
+- Aldo Pontiroli
+- Angelo Pugliese (Università degli Studi di Milano)
+- Cesare Ranzoli (Università degli Studi di Genova)
+- Giuseppe Rensi (Università degli Studi di Genova)
+- Vincenzo Rivera (Università degli Studi di Bari)
+- Giulio Emanuele Rizzo (Università degli Studi di Napoli)
+- Pasquale Romano
+- Luigi Rossi (Università degli Studi di Roma)
+- Luigi Sabbatani (Università degli Studi di Padova)
+- Luigi Sala (Università degli Studi di Pavia)
+- Ireneo Sanesi (Università degli Studi di Pavia)
+- Giuseppe Santoro (Università degli Studi di Napoli)
+- Emanuele Sella (Università degli Studi di Genova)
+- Francesco Severi (Università degli Studi di Roma)
+- Raffaello Silvestrini (Università degli Studi di Perugia)
+- Siro Solazzi (Università degli Studi di Pavia)
+- Aldo Sorani
+- Enrico Tedeschi (Università degli Studi di Padova)
+- Nunzio Vaccalluzzo (Università degli Studi di Catania)
+- Manara Valgimigli (Università degli Studi di Pisa)
+- Natale Vianello
+- Guido Zacchetti
+- Giuseppe Zampini
