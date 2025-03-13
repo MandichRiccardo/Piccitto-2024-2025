@@ -26,7 +26,7 @@ Lui è stato un grande statiste che è riuscito a fare quello che poteva con la 
 Gorbačëv indice le prime elezione che però vengono vinte da El'cin, colui che la popolazione voleva in quel momento, una popolazione che di politica non se ne intende e che quindi non capisce che Gorbačëv ha fatto tutto quello che poteva
 # El'cin
 la prima grande privatizzazione fu quella di gazprom, le cui azioni vennero distribuite a tutta la popolazione per renderlo una proprietà di tutti, questo ha portato quei pochi che ne capivano il valore a recuperare tutte queste azioni e rendere la russia una oligarchia plutocratica
-nel 200 putin prende il comando della federazione russa
+nel 2000 putin prende il comando della federazione russa
 # putin
 la russia resta politicamente isolata anche con le relazioni diplomatiche che comincia a intrattenere con cina e europa
 in questo periodo sorgono tutte le varie autocrazie, ossia nazioni con sistemi non ideologici ma solo pratici
